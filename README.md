@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @turkyalmalky0
+- 👀 I’m interested in IT And Staff
+- 🌱 I’m currently learning Java & Lua & Html & CSS
+- 📫 How to reach me * Nothing *
